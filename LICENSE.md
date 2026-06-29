@@ -1,4 +1,4 @@
-#  
+#  Experience survive lava for brainrots like never before with custom Script for survive lava for brainrots, the #1 Script. Includes esp and speed for
 
 
 
